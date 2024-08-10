@@ -11,8 +11,12 @@
 😄 She/Her<br><br>
 <br>
 <br>
-<br>
-<br>
+Connect with me: <br>
+
+LinkedIn: [Your LinkedIn profile link]
+Twitter: [Your Twitter handle]
+Instagram: [Your Instagram handle] (optional)
+<--!--Portfolio: [Your portfolio link] (optional)!-->
 ........................................................................................................................
 <br>
 <br>
