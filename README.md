@@ -8,6 +8,7 @@
 <br>
 🛠️ Tech Stack:  HTML, CSS, JavaScript, C++ , Bootstrap , DSA ,OOP <br><br>
 <br>
+🌱 Learning Mern Stack<br><br><br>
 😄 She/Her<br><br>
 <br>
 <br>
