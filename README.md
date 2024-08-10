@@ -13,10 +13,10 @@
 <br>
 Connect with me: <br>
 
-LinkedIn: [Your LinkedIn profile link]
-Twitter: [Your Twitter handle]
-Instagram: [Your Instagram handle] (optional)
-<--!--Portfolio: [Your portfolio link] (optional)!-->
+LinkedIn: www.linkedin.com/in/nazal-malik-a7a95a23b
+<br>
+Instagram: https://www.instagram.com/nazal_malik/
+<br>
 ........................................................................................................................
 <br>
 <br>
